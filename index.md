@@ -7,3 +7,6 @@ Pippilotta Viktualia Rollgardina Pfefferminz Efraimstochter Langstrumpf, gennant
 * spontan 
 * großzügig
 * stark
+
+Pippi Langstrumpf:
+> Warte nicht darauf, dass dich Menschen anlächeln. Zeige ihnen, wie es geht!
